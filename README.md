@@ -1,1 +1,0 @@
-# Pele-Tribute-Page
